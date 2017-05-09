@@ -1,4 +1,4 @@
-United Thru Action is a progressive campaign group, based in New York City, committed to 
+United Thru Action is a progressive campaign group, based in New York City.
 
 ### Contact Us
 
